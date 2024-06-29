@@ -1,6 +1,6 @@
 - 🔗 @l33t1
 - 📫 https://t.me/x1337hub
-- 📫 https://t.me/zeusleaks1337
+- 📫 https://t.me/wannabe1337leaks
 - ⚡ your need good l7 contact me: ...
 **I'm just a student, still learning programming :)**
 
